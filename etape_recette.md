@@ -11,3 +11,6 @@ Liste d'ingrédients:
 
 1ère étape
 - Détailler le chocolat en pépites.
+
+2ème étape 
+- Préchauffer le four à 180°C (thermostat 6). 
