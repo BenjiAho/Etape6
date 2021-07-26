@@ -10,4 +10,4 @@ Liste d'ingrédients:
 - 1 cuillère à café de levure chimique 
 
 1ère étape
-- Détailler le chocolat en pépites. 
+- Détailler le chocolat en pépites.
