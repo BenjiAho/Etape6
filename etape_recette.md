@@ -9,4 +9,5 @@ Liste d'ingrédients:
 - 1 cuillère à café de sel 
 - 1 cuillère à café de levure chimique 
 
-étape 2
+1ère étape
+- Détailler le chocolat en pépites. 
