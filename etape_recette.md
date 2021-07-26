@@ -1,4 +1,5 @@
-Recette 
+Liste d'ingrédients:
+
 - 75g de beurre mou 
 - 1 œuf 
 - 85g de sucre 
@@ -7,3 +8,5 @@ Recette
 - 100g de chocolat noir 
 - 1 cuillère à café de sel 
 - 1 cuillère à café de levure chimique 
+
+étape 2
