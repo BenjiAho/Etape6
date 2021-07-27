@@ -26,4 +26,6 @@ Liste d'ingrédients:
 
 6ème et dernière étape
 - Enfourner pour 10 minutes de cuisson. 
-Puis retirer du four et laissez reposer =)
+Puis retirer du four et laissez reposer.
+
+Dressez un plat avec les cookies réalisés.
